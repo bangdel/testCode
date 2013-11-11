@@ -1,3 +1,3 @@
--Sampling git hub
+-Sampling github
  -
  -No intention of plagiarism
